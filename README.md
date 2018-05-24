@@ -1,3 +1,3 @@
 # agonc-techstitution
 ### HELLO WORLD
-Une jom Arditi
+Ne jemi Arditi dhe Laura 
